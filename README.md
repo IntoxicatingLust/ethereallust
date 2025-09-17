@@ -1,6 +1,6 @@
 <div align="center">
  
- ![Image](https://github.com/user-attachments/assets/6c04028c-d6ed-46a1-bed9-eb8a5362875a)
+<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/c3774a42-ca90-433b-bc96-4e1a584c6852" />
 
 
 # Shann. 
