@@ -1,4 +1,4 @@
-# ethereallust
+# IntoxicatingLust
 ![Image](https://github.com/user-attachments/assets/dccb2d00-1538-4d26-b739-299d65874b09)
 
 Just a place where I put things, maybe.
