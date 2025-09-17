@@ -16,7 +16,9 @@
 
 🕒 20 → 21 soon  
 he/him | student dev & artist... maybe?  
-
+Male
+Bisexual + aroace
+INTP
 ---
 
 💻 Student exploring coding and software development  
