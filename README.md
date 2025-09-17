@@ -1,5 +1,6 @@
 # ethereallust
 ![Image](https://github.com/user-attachments/assets/dccb2d00-1538-4d26-b739-299d65874b09)
+. . . . . . . . . .
 Just a place where I put things, maybe.
 ( ✅int is fine aight? ; unless dni/dniuf in pt) ( 🚫 dnc: unless we’re friends ) 
 🕒 20 → 21 soon
