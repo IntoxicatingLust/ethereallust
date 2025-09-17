@@ -24,4 +24,6 @@ he/him | student dev & artist... maybe?
 ⚡ Interested in coding, games, and creative projects  
 🌙 Just making things I enjoy — in code & on canvas lmao  
 
+![Image](https://github.com/user-attachments/assets/3bd229fc-ce04-4273-a2a4-68db3c04a289)
+
 </div>
